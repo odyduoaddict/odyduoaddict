@@ -9,7 +9,7 @@ $\color{#ff9d8d}{I've}$ $\color{#ffccc9}{been}$ $\color{#ff9d8d}{hiding}$ $\colo
   </a>
 </p>
 <p align="center" >
-<a href="https://odyduoaddict.atabook.org/">Ata</a> $\color{#ff9d8d}{gone}$ <a href="https://sonarblue.straw.page/">Strawp 1</a>  <a href="https://pr1ncezam.straw.page/">Strawp 2</a> 
+<a href="https://odyduoaddict.atabook.org/">Ata</a> $\color{#ff9d8d}{.•}$ <a href="https://sonarblue.straw.page/">Strawp 1</a> $\color{#ff9d8d}{ ࣪ :}$ <a href="https://pr1ncezam.straw.page/">Strawp 2</a>  $\color{#ff9d8d}{ ࣪་࿐}$
 
 ㅤㅤㅤㅤㅤ<img width="200" align="" alt="IMG_6574" src="https://github.com/user-attachments/assets/deaaa2bd-547e-4180-b53c-1b17e44e8e40" />
 <p align="left" >
