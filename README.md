@@ -17,8 +17,7 @@ $\color{#ff9d8d}{I've}$ $\color{#ffccc9}{been}$ $\color{#ff9d8d}{hiding}$ $\colo
   
 ㅤㅤㅤㅤㅤ<img width="200" align="" alt="IMG_6574" src="https://github.com/user-attachments/assets/deaaa2bd-547e-4180-b53c-1b17e44e8e40" />
 <p align="left" >
-
-   $\color{#ffccc9}{︶⊹︶︶}$  <img  alt="pink" src="https://github.com/user-attachments/assets/fe18f584-a4b5-41e7-96bf-0ed6d2f3cc1e" />
-  $\color{#ffccc9}{ ︶︶⊹︶}$ 
+<p align="center" >
+   $\color{#ffccc9}{︶⊹︶︶}$  <img  alt="pink" src="https://github.com/user-attachments/assets/fe18f584-a4b5-41e7-96bf-0ed6d2f3cc1e" /> $\color{#ffccc9}{ ︶︶⊹︶}$ 
 
 $\color{#ff9d8d}{These}$ $\color{#ffccc9}{feelings,}$ $\color{#ff9d8d}{they're}$ $\color{#ffccc9}{not}$ $\color{#ff9d8d}{gone}$
