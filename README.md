@@ -6,6 +6,8 @@ $\color{#ff9d8d}{I've}$ $\color{#ffccc9}{been}$ $\color{#ff9d8d}{hiding}$ $\colo
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=kge0bogv22bl9c4gowmh7zdjm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff9d8d&bar_color_cover=false">
+    
+ $\color{#ff9d8d}{︶⊹︶︶}$    <img alt="yellow2" src="https://github.com/user-attachments/assets/02976997-3510-46d1-b1c1-78c038c14d98" />  ︶︶⊹︶
   </a>
 </p>
 <p align="center" >
