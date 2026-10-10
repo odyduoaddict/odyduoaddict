@@ -1,4 +1,4 @@
-<img align="left" width="590" alt="print" src="https://github.com/user-attachments/assets/89c2916f-4301-4108-a7fd-d2838cf2b780" />
+<img align="left" width="550" alt="print" src="https://github.com/user-attachments/assets/89c2916f-4301-4108-a7fd-d2838cf2b780" />
 
 <p align="right" >
 $\color{#ff9d8d}{I've}$ $\color{#ffccc9}{been}$ $\color{#ff9d8d}{hiding}$ $\color{#ffccc9}{for}$ $\color{#ff9d8d}{so}$ $\color{#ffccc9}{long}$
