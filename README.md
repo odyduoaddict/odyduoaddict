@@ -8,6 +8,7 @@ $\color{#ff9d8d}{I've}$ $\color{#ffccc9}{been}$ $\color{#ff9d8d}{hiding}$ $\colo
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=kge0bogv22bl9c4gowmh7zdjm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff9d8d&bar_color_cover=false">
   </a>
 </p>
+<p align="center" >
 <a href="https://odyduoaddict.atabook.org/">Ata</a> $\color{#ff9d8d}{gone}$ <a href="https://sonarblue.straw.page/">Strawp 1</a>  <a href="https://pr1ncezam.straw.page/">Strawp 2</a> 
 
 ㅤㅤㅤㅤㅤ<img width="200" align="" alt="IMG_6574" src="https://github.com/user-attachments/assets/deaaa2bd-547e-4180-b53c-1b17e44e8e40" />
